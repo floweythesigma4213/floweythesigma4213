@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @floweythesigma4213
 - 👀 I’m interested in cartoons :3 
 - 🌱 I’m currently learning java (mainly)
-- 📫 How to reach me DISCORDDDDD
+- 📫 How to reach me DISCORDDDDD  (jijistmath is user)
 - 😄 Pronouns: uwu
 - ⚡ Fun fact: I like potatoes
 
